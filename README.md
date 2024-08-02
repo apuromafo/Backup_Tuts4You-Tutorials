@@ -1,3 +1,11 @@
+#2024  Tuts4You site:
+https://forum.tuts4you.com/
+
+Tuts4You Telegram:
+https://t.me/   +STUR1c3o_uw4OTE1
+
+
+
 # 2021 update:
 
 Will be creating a 2021 tuts4you rip as well as reaching out to other teams/sites to see if they would be intrested in a conservation/archival effort.
